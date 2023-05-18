@@ -1,1 +1,1 @@
-👋 Hi, I’m @oneineight
+👋 @oneineight
